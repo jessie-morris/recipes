@@ -1,4 +1,4 @@
-# Chili
+# Chicken and Rice Bake
 
 ## Cooking time: 45 min
 ## Temperature: 375 F
