@@ -1,6 +1,6 @@
 # Mississippi Pot Roast
 
-## Cooking time:
+## Cooking time: 8 hours
 ## Temperature: low
 
 ## Ingredients
