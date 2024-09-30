@@ -7,6 +7,8 @@
 
 - 1 can pinto beans
 - 1 can dark red kidney beans
+- 2-3 green peppers
+- 1 yellow onion
 - 1-2 cans petite diced tomatoes
 - 1 can tomato sauce
 - 1 mini can tomato paste
@@ -16,7 +18,7 @@
 
 ## Steps
 
-- Brown beef in skillet and drain if > 90/10 fat content
+- Brown beef in skillet, mixing in peppers and onions as beef is clcose to done and drain if > 90/10 fat content
 - Mix together tomatoes and beans into large pot
 - Add seasoning packets to taste, usually .5 of each packet to start.
 - Cook on low for at least 2 hours
