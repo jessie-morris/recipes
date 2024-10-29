@@ -16,4 +16,4 @@
 - Place roast in the slow cooker and sprinkle the top with the ranch dressing mix and the au jus mix.
 - Place peppers on top of the mixes, and add the butter.
 - Cook over low heat for 8 hours.
-- About 2 hours from serving time, add peeled potatoes and carrots
+- About 4 hours from serving time, add peeled potatoes and carrots and turn to high until they're tender
